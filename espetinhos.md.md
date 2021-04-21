@@ -1,0 +1,35 @@
+***ESPETINHOS*** :calendar:
+
+
+
+- SABOR FRANFO/BACON
+- CARNE SOL/QUEIJO
+- FRANGO/QUEIJO
+- TOSCANA FRANGO
+- TOSCANA MISTA
+- SALSICHÃO
+- PÃO DE ALHO
+- QUEIJO NA BRASA 
+- CHARQUE    
+
+**VALORES**
+
+- LINGUIÇA TOSCANA = R$ 3,00
+
+- CARNE SOL = R$ 5,00
+
+- FRANGO+  = R$ 4,00
+
+- PÃO ALHO = R$ 4,00
+
+- QUEIJO/BRASA = R$ 5,00
+
+- CHARQUE = R$ 5,00
+
+  
+  
+  **sabor em seu paladar**
+  
+  
+  
+  
